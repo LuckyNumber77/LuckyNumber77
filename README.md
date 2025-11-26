@@ -2,6 +2,6 @@
 - 👀 I’m interested in all things related to programming and Artificial Intelligence.
 - 🌱 I’m currently learning different coding languages.
 - 💞️ I’m looking to collaborate on any IT 
-- 📫 How to reach me darren.billy@dcmail.ca
+- 📫 How to reach me darrenbilly@trentu.ca
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I enjoy working out and learning new things.
